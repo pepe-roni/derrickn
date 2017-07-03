@@ -1,1 +1,1 @@
-# derrickn
+# Lowell Physics Club Landing Page
